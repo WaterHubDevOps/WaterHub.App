@@ -1,1 +1,1 @@
-waterhub.co beta app [Q2TESTING♡
+waterhub.co beta app [Q2TESTING]
